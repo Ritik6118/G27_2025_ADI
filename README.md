@@ -1,0 +1,2 @@
+One Note Url --> https://onedrive.live.com/view.aspx?resid=64922740FC04C48B%21s8a812bc0debf41e5a8beaa2583da0619&id=documents&wd=target%28G27.one%7C6320AE0B-1B8E-4A82-A34E-D8821E7C8E49%2F%29&wdsectionfileid=64922740FC04C48B!s02bd214e44564af28fc231b516b0bb0d
+onenote:https://d.docs.live.net/64922740fc04c48b/Documents/ADI-2025-Chitkara-5thSemester/G27.one#section-id={6320AE0B-1B8E-4A82-A34E-D8821E7C8E49}&end
